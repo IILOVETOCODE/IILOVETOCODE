@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @IILOVETOCODE
+- 👋 Hi, I’m @RAhul GArg
 - 👀 I’m interested in PROVIDING COURSES
 - 🌱 I’m currently learning CODING
 - 💞️ I’m looking to collaborate WITH YOU ALL TO SUPPORT OUR STUDENTS IN POLISHING THEIR GENIUS.
